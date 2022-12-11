@@ -1,1 +1,1 @@
-We create novel products and solutions based on applied research for inventors at companies and universities.
+Our goal is to create open and novel research devices for neuroscience.
